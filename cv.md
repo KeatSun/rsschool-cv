@@ -31,6 +31,6 @@ Secondary special education - Auto Electrician*
 * # Home 1
 * # Kuncu gatve 6, Klaipeda, Lithuania. 2
 * # Mobile 1
-* # +3706925173 2
+* # +37069251733 2
 * # Email 1
 * # Boysun887@gmail.com 2
